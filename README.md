@@ -1,2 +1,2 @@
 # bulling
-my menational
+i need help (sorry,jokes...)
